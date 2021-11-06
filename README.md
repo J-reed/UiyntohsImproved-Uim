@@ -9,4 +9,4 @@ Uiyntohs: for those who dream
 
 Join us....
 
-If we get 10+ members we can become an official cult!
+If we get 10+ members we can become an official cult (£2/minute entry fee)!
