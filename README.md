@@ -6,3 +6,7 @@ Is Windows getting you down? Well look no further than Uiyntohs Improved! With U
 Are you Uith us or against us?
 
 Uiyntohs: for those who dream
+
+Join us....
+
+If we get 10+ members we can become an official cult!
