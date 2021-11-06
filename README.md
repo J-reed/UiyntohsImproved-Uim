@@ -9,4 +9,8 @@ Uiyntohs: for those who dream
 
 Join us....
 
+Did you know that noone has ever died after using Uiyntohs OS? Nor have they so much as lost a single shoe!
+
+Win with Uim OS. It's for Uimners! 
+
 If we get 10+ members we can become an official cult (£2/minute entry fee)!
